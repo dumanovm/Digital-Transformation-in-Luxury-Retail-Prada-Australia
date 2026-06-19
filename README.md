@@ -1,4 +1,4 @@
-# Luxury Retail Digital Transformation Strategy: Prada Australia Case
+# Digital Transformation and AI Strategy in Luxury Retail: The Case of Prada Australia
 
 ## Executive Summary
 
